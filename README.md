@@ -1,2 +1,0 @@
-# NEXORA-ARENA-
-Privacy policy 
